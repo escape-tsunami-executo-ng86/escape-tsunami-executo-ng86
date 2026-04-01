@@ -1,4 +1,4 @@
-
+Free pro easter tap simulator Scripts | god + esp brings you the best free scripts for easter tap simulator, featuring god and esp. Our mission is to empower players with the resources they need to excel. Say goodbye to paywalls and hello to unlimited possibilities.
 
 
 ---
